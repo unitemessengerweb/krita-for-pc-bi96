@@ -1,4 +1,4 @@
-# 
+# Krita for PC | Krita for Windows elite Script: custom-brushes & raw-file-support is the best Krita for PC | Krita for Windows script, featuring custom-brushes and
 
 
 
